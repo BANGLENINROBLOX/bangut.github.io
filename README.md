@@ -1,0 +1,1 @@
+# bangut.github.io
